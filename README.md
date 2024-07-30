@@ -1,4 +1,4 @@
-Oii 💙💙
+Oii 🤍
 
 Meu nome é julia oliveira
 
